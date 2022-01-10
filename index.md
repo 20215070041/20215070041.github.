@@ -1,4 +1,4 @@
-![](https://images.contentstack.io/v3/assets/blt731acb42bb3d1659/blt670d428d1921eed8/614be30d69b7947c1b3aebd5/9242021_StateofGameplayArticle_Header.jpg)
+![](https://nexus.leagueoflegends.com/wp-content/uploads/2019/10/LOL_CMS_317_Tile_01-Feature_H50-V50-min_bz7waxz83vsjvua6mn4h.jpg)
 
 #  Riot Games 
 ## League of Legends
